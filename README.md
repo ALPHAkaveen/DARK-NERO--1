@@ -10,7 +10,7 @@
 LATEST VERSION 6.5 (2022-07-05 [Get videos 360p, 480p, 720p])
 
 
-<img src="https://i.ibb.co/dMVcw0C/Whats-App-Image-2022-07-13-at-10-57-56-AM-1.jpg" alt=alt="nz" width="600"/>
+
 
 > Image Designed By  ==(NERO TEM)== DARK TEAM
 
