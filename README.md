@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://i.ibb.co/dMVcw0C/Whats-App-Image-2022-07-13-at-10-57-56-AM-1.jpg" alt="Whats-App-Image-2022-07-13-at-10-57-56-AM-1" border="0">
+<img src="https://i.ibb.co/dMVcw0C/Whats-App-Image-2022-07-13-at-10-57-56-AM-1.jpg" alt="Whats-App-Image-2022-07-13-at-10-57-56-AM-1 width="350"/>" 
 </p>
 
 
